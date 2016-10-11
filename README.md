@@ -1,2 +1,1 @@
-# pariyem_wpa.github.io
-Pariyem TI 2015 
+saya Pariyem, saya adalah salah satu mahasiswi Teknik Informatika Unifersitas Lampung saya sangat senang bisa bergabung di sini
